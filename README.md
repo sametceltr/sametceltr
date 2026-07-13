@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 My indie horror game Alter Psycho<br>🤝 AI workflows<br>🌱 I'm trying to learn building with ai<br>💬 Anything<br>⚡ I can't do a backflip
+🔭 I'm working on my indie horror game Alter Psycho<br>🤝 You can help me with AI workflows<br>🌱 I'm trying to build useful tools with ai<br>💬 You can ask me anything<br>⚡ I can't do a backflip
 
 
 ## 🌐 Socials:
